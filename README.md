@@ -9,7 +9,13 @@ w2i strictly or i wont see + ALWAYS c+h, boop & kiss friendly unless under dni
 
 im mostly active on discord, and youre free to add me on there even if we havent spoken, i actually encourage it cuz i like talking 2 people - my user is on my guns!!!
 
+![](https://64.media.tumblr.com/283be01d657506d9422b38f79945bda2/4160be3cc2b84620-4e/s100x200/7eb59455b9ef0119f92f6cde915d5a80b621f210.gifv) 
+
 THE BIGGEST MEPHINITE GLAZER THERE HAS EVER BEEN I DRAW THEM DAILY OUUHHGGGG
+
+SHIPS INT INT FREEEEEELY IM LIKE JOHN MULTISHIP I LOVE THEM ALL
+
+any genuine gross ones (eg. sontails or smt) can stay away, i WILL move away from you / block you
 
 ![](https://64.media.tumblr.com/283be01d657506d9422b38f79945bda2/4160be3cc2b84620-4e/s100x200/7eb59455b9ef0119f92f6cde915d5a80b621f210.gifv) 
 

@@ -6,4 +6,4 @@
 
 <p align="center"
 
-making strawpg page
+<a href="https://widewebsys.straw.page/faker">my page on strawpg</a>

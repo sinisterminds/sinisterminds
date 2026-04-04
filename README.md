@@ -10,4 +10,8 @@
 
 <a href="https://widewebsys.straw.page/faker">faker's page on strawpg</a>
 
+<p align="center"
+
+if i am sat with <a href="https://github.com/sl33plessnights">@sl33plessnights</a> any matching cosplays we have are NOT SHIPS. WE ARE SIBLINGS AND THEY ARE VERY SIMPLY DUOS. do not jump to the conclusion that it's a ship, we're uncomfortable with that thanks bye
+
 ![](https://i.postimg.cc/GttWS8Z2/Untitled530-20260403195107.png)
